@@ -48,7 +48,7 @@
 ![image](https://github.com/user-attachments/assets/9337b63a-2e57-4ab3-9361-74e737c5d099)
 
 
-##Temporel/Fraze pls stop doing this lmao
+Temporel/Fraze pls stop doing this lmao
 https://cdn.discordapp.com/attachments/1237408345493737542/1271191883669831771/InShot_20240808_214142446.mp4?ex=66b67132&is=66b51fb2&hm=43b84facd6f57b38a0a71a192fecb7a384b32bf9a5cf1a1e8fcf297520cd6bfd&
 
 
