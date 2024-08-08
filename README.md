@@ -9,6 +9,7 @@
 
 
 ## my friend also getting muted on 9b pooblic after he didnt answe to kib's dms
+![immagine](https://github.com/user-attachments/assets/a828bddf-1366-41b6-96da-53a105f93e9f)
 
 
 ## Temporel answering to himself afteer making a question to Kib?
