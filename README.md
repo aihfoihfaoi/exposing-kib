@@ -54,5 +54,14 @@
 Temporel/Fraze pls stop doing this...
 https://cdn.discordapp.com/attachments/1237408345493737542/1271191883669831771/InShot_20240808_214142446.mp4?ex=66b67132&is=66b51fb2&hm=43b84facd6f57b38a0a71a192fecb7a384b32bf9a5cf1a1e8fcf297520cd6bfd&
 
+## Fraze whyyyyyy
+
+![immagine](https://github.com/user-attachments/assets/07f4d3c2-896c-46e5-99f1-4e8da785b015)
+
+## Fraze why are you trying to frame random guys now :(
+
+![immagine](https://github.com/user-attachments/assets/b67fe8dc-d667-4f81-ac40-26fbaf93b738)
+
+
 
 #### if you have any screenshots of kib implying that hes alting, pls fork this repo and add them
