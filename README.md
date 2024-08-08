@@ -43,4 +43,5 @@
 
 
 
-
+### this repo was made by your best friend Abebe owner
+#### if you have any screenshots of kib implying that hes alting, pls fork this repo and add them
