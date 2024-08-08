@@ -4,11 +4,11 @@
 
 
 
-## Kib trying to threaten a friend of mine, after he got banned from the anarhyMC discord
+## Kib trying to threaten a friend of mine, after he got banned from the anarchyMC discord
 ![immagine](https://github.com/user-attachments/assets/7eb2ee5f-ec98-47ff-b250-7450992b2fdf)
 
 
-## My friend also getting muted on 9b pooblic after he didnt answe to kib's dms
+## My friend also getting muted on 9b pooblic after he didnt answer to kib's dms
 ![immagine](https://github.com/user-attachments/assets/a828bddf-1366-41b6-96da-53a105f93e9f)
 
 
@@ -42,6 +42,10 @@
 
 
 
+
+
+## Proof of the alts joining
+![image](https://github.com/user-attachments/assets/9337b63a-2e57-4ab3-9361-74e737c5d099)
 
 
 #### if you have any screenshots of kib implying that hes alting, pls fork this repo and add them
