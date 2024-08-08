@@ -8,7 +8,7 @@
 ![immagine](https://github.com/user-attachments/assets/7eb2ee5f-ec98-47ff-b250-7450992b2fdf)
 
 
-## my friend also getting muted on 9b pooblic after he didnt answe to kib's dms
+## My friend also getting muted on 9b pooblic after he didnt answe to kib's dms
 ![immagine](https://github.com/user-attachments/assets/a828bddf-1366-41b6-96da-53a105f93e9f)
 
 
@@ -30,7 +30,7 @@
 
 
 
-## no way chungus said this lmao
+## No way chungus said this lmao
 
 ![immagine](https://github.com/user-attachments/assets/85bedc69-6f7a-4229-ab12-a723dde4c8f6)
 
