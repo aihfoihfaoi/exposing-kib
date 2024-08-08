@@ -44,4 +44,8 @@
 
 
 
+## Proof of the alts joining
+![image](https://github.com/user-attachments/assets/9337b63a-2e57-4ab3-9361-74e737c5d099)
+
+
 #### if you have any screenshots of kib implying that hes alting, pls fork this repo and add them
