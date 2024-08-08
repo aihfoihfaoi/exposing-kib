@@ -1,4 +1,4 @@
-# master of alts, and also a pedo
+# master of alts, a pedo and also sex offenders
 
 
 
