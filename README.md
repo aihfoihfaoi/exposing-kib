@@ -26,12 +26,18 @@
 ## Temporel (one of kib's alts) trying to slide in her dms even tho she's a minor and he's 21???????????????
 ![immagine](https://github.com/user-attachments/assets/478f49ed-852b-4999-9518-c3e2350594a0)
 
+![immagine](https://github.com/user-attachments/assets/6e077f60-814f-4790-b817-93c8fb775f21)
+
+
 
 ## no way chungus said this lmao
 
 ![immagine](https://github.com/user-attachments/assets/85bedc69-6f7a-4229-ab12-a723dde4c8f6)
 
 ![immagine](https://github.com/user-attachments/assets/3ef044a9-77ac-4bd7-9a77-b0a31d3cf4ee)
+
+![immagine](https://github.com/user-attachments/assets/ce69d001-2812-4d56-8fa3-043d8799b490)
+
 
 
 
